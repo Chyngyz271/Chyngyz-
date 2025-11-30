@@ -1,0 +1,2 @@
+# Chyngyz-
+Project 1
